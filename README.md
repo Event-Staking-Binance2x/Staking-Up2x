@@ -1,1 +1,0 @@
-# Staking-Up2x
